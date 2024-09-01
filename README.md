@@ -1,7 +1,7 @@
 ## Hi there 👋
 The name's Rayu. 
 
-🐺🐉 Werewolf-dragon hybrid who happens to code games, software and games! 
+🐺🐉 Werewolf-dragon hybrid who happens to code games, software and websites!  
 
 =-=-=-
 
